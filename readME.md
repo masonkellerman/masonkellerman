@@ -1,4 +1,4 @@
-I *literally* don't know what im doing  
 but im trying real hard  
 
-wish me luck pls <3
+> "We have pushed our ingenuity to its limit in seeking to contrive relevant quantifications"
+> — Blau & Duncan (2007)
